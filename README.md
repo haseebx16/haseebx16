@@ -1,7 +1,10 @@
 # 💫 About Me:
 🚀 Currently working on: Full-stack technologies & blockchain development.
+
 🤖 Currently learning: AI/ML to expand my tech stack.
+
 💡 Looking to collaborate on: Open-source projects & innovative solutions.
+
 🎯 Fun fact: I love tackling complex problems and optimizing workflows for efficiency!
 
 
