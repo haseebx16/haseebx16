@@ -5,7 +5,7 @@
 
 💡 Looking to collaborate on: Open-source projects & innovative solutions.
 
-🎯 Fun fact: I love tackling complex problems and optimizing workflows for efficiency!
+🎯 Fun fact: I am just 17 years old !
 
 
 ## 🌐 Socials:
